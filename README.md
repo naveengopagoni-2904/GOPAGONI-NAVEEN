@@ -47,3 +47,6 @@
 📧 naveengopagoni2904@gmail.com  
 📞 +91 8125836329  
 📍 Hyderabad, India  
+
+📄 [Download My Resume](./Naveen_Gopagoni_Resume.pdf)
+
